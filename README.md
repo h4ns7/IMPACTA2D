@@ -1,1 +1,0 @@
-# IMPACTA2D
